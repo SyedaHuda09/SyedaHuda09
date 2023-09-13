@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SyedaHuda09
-- 👀 I’m interested in Programming Languages..
+- 👀 I’m interested in AI,PMP,IOT
 - 🌱 I’m currently learning Software Programming World...
 - 💞️ I’m looking to collaborate on WW Collaborations..
 - 📫 How to reach me  through hudamohsin5@gmail.com...
